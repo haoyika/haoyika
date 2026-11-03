@@ -6,7 +6,7 @@
 
 🔗 **官网**：[haoyi.online](https://haoyi.online/) · **代理注册**：[haoyi.online/register-agent](https://haoyi.online/register-agent) · **官方邀请码**：**663998**
 
-![号易号卡分销系统官网](https://images.52ymao.cn/haoe/号易分销系统官网.jpg)
+![号易号卡分销系统官网](images/home-hero.jpg)
 
 ## 在售号卡品类（265 款，每日同步新卡）
 
